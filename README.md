@@ -1,4 +1,4 @@
-## sou o Heitor
+## _sou o Heitor_
 ## eu gosto da minha namorada
 
 - eu gosto de jogar bola
