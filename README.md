@@ -4,7 +4,7 @@
 - eu gosto de jogar bola
 - eu sou estudante
 - eu trabalho
-- 👑🥷⚽🇧🇷🇺🇲
+- 👑🥷⚽🇧🇷🇺🇲💼
 - @heitor.andrade__
 
 ![](https://media1.tenor.com/m/WHVS4Wv6iMYAAAAd/cristiano-ronaldo-ronaldo-portugal.gif)
