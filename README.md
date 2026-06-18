@@ -9,5 +9,7 @@
 
 ![](https://media1.tenor.com/m/WHVS4Wv6iMYAAAAd/cristiano-ronaldo-ronaldo-portugal.gif)
 
-<img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/7776bf03-bfa2-437a-bb6c-7d6325f26e82" />
+
+<img width="245" height="306" alt="image" src="https://github.com/user-attachments/assets/ac6144ad-9bdd-4b40-b63c-38cc9b5e1227" />
+
 
